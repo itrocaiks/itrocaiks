@@ -1,5 +1,5 @@
 ```
-brainrot 15yo kid
+I'm brainrot 15yo kittyo :3
           ┌────────────────────┐
  /\_/\ ♥    meow,                 
  >^,^<      iusearchgentoolfsllvm 
