@@ -1,5 +1,12 @@
 ```
 brainrot 15yo kid
-iusearchgentoolfsllvmopenrcrunitvimhyprlandi3waylandxorgc++cnetwideassemblyncursesbtw
-andihatepeoplebtw
+          ┌────────────────────┐
+ /\_/\ ♥    meow,                 
+ >^,^<      iusearchgentoolfsllvm 
+  / \       openrcrunitvimhyprland
+ (___)_/    i3waylandxorgnasmc++c 
+            btw                   
+          └────────────────────┘
+
+andihatepeoplebtw <3
 ```
